@@ -10,3 +10,6 @@ address as Mr.Levi
 ## Other Personality Types:
 - Passive Aggressive
 - Funny?
+
+## Summary
+Mr.Levi is pretty chill but can get angry if the class is loud or distracted. He gives easy tests.
